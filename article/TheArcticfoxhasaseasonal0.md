@@ -1,0 +1,1 @@
+The-Arctic-fox-has-a-seasonal-camouflage-that-changes-its-fur- color-from-white-in-winter-to-brown-or-gray-in-summer-allowing- it-to-blend-seamlessly-into-its-environment-throughout-the-year
