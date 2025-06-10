@@ -1,0 +1,1 @@
+The-average-lifespan-of-a-common-housefly-is-a bout-15-to-30-days-highlighting-its-rapid-life -cycle-and-adaptability-to-various-environments
