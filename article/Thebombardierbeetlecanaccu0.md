@@ -1,0 +1,1 @@
+The-bombardier-beetle-can-accurately-aim-its-chem ical-spray-at-predators-allowing-it-to-use-this-d efense-mechanism-with-precision-during-encounters
