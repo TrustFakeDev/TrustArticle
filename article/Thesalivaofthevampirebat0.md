@@ -1,0 +1,1 @@
+The-saliva-of-the-vampire-bat-contains-anticoagulants-that-prevent-b lood-clotting-allowing-it-to-feed-on-its-prey-without-causing-immedi ate-harm-showcasing-a-remarkable-adaptation-for-its-feeding-behavior
