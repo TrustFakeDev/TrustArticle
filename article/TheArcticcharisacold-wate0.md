@@ -1,0 +1,1 @@
+The-Arctic-char-is-a-coldwater-fish-that-can-thrive-in-both -freshwater-and-saltwater-environments-exhibiting-remarkabl e-adaptability-to-extreme-temperatures-and-food-availability
