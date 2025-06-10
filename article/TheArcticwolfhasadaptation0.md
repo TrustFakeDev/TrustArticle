@@ -1,0 +1,1 @@
+The-Arctic-wolf-has-adaptations-that-allow-it-to-thrive-in-temper atures-as-low-as-40-degrees-Fahrenheit-40-degrees-Celsius-includi ng-a-thick-coat-of-fur-and-a-compact-body-that-minimizes-heat-loss
