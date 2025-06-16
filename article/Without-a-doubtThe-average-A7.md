@@ -1,0 +1,1 @@
+Without-a-doubt The-average -American-consumes-approximately-70-pounds-315-kilograms-of-sugar-each-year-highlighting-the-significant-impact-of-sweeteners-on-dietary-habits-and-health
